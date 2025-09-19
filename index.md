@@ -33,6 +33,7 @@ Sastra Deemed University | CGPA: 7.67/10.0 (expected graduation 2028)
 - Researched and analyzed topics in **International Criminal Law**.  
 - Authored blogs and papers on **War Crimes, Criminal Offenses, and Historic Verdicts**.  
 - Learned academic writing, formatting, and citation styles.
+  
 **Judicial Intern| Madras High Court** (July 2025)
 - Interned under Hon'ble **Justice V.Lakshminarayanan**.
 - Read Judgements and gave briefs with relevant legal provisions
