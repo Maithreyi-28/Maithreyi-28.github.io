@@ -12,7 +12,7 @@ Sastra Deemed University | CGPA: 7.67/10.0 (expected graduation 2028)
 ---
 
 ## 🎓 Education
-- **B.B.A LL.B (Hons.)**, Sastra Deemed University (2028 exp.) – CGPA: 7.67/10  
+- **B.B.A LL.B (Hons.)**, Sastra Deemed University (2028 exp.) – CGPA: 7.88/10  
 - **Class XII, CBSE**, Sri Vageesha Vidhyashram (2020) – 82.6%  
 - **Class X, CBSE**, Sri Vageesha Vidhyashram (2018) – 85.4%  
 
