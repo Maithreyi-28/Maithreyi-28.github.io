@@ -37,7 +37,7 @@ Sastra Deemed University | CGPA: 7.67/10.0 (expected graduation 2028)
 **Judicial Intern| Madras High Court** (July 2025)
 - Interned under Hon'ble **Justice V.Lakshminarayanan**.
 - Read Judgements and gave briefs with relevant legal provisions
-- Observed Court proveedings
+- Observed Court proceedings
 - Researched on relevant topis related to current on going proceedingss
   
 
