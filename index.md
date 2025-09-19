@@ -74,11 +74,9 @@ Sastra Deemed University | CGPA: 7.88/10.0 (expected graduation 2028)
 - Other interests: Reading, Music, Languages.  
 
 ---
----
 layout: page
 title: "About Me"
 ---
 
 I am a 2nd year **Law with Business Administration** undergraduate at Sastra Deemed University.  
 Passionate about legal research, writing, and advocacy, with interests spanning international law, corporate law, and public policy.  
-
