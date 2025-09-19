@@ -6,7 +6,7 @@ title: "Home"
 # Maithreyi Kannan A
 📧 [maithreyikannan23@gmail.com](mailto:maithreyikannan23@gmail.com) | 📱 (+91) 6366206111  
 
-2nd Year Undergraduate – **Law with Business Administration**  
+3rd Year Undergraduate – **Law with Business Administration**  
 Sastra Deemed University | CGPA: 7.67/10.0 (expected graduation 2028)
 
 ---
@@ -32,7 +32,13 @@ Sastra Deemed University | CGPA: 7.67/10.0 (expected graduation 2028)
 **Legal Content Creator | NayaLegal** (July 2024)  
 - Researched and analyzed topics in **International Criminal Law**.  
 - Authored blogs and papers on **War Crimes, Criminal Offenses, and Historic Verdicts**.  
-- Learned academic writing, formatting, and citation styles.  
+- Learned academic writing, formatting, and citation styles.
+**Judicial Intern| Madras High Court** (July 2025)
+- Interned under Hon'ble **Justice V.Lakshminarayanan**.
+- Read Judgements and gave briefs with relevant legal provisions
+- Observed Court proveedings
+- Researched on relevant topis related to current on going proceedingss
+  
 
 ---
 
