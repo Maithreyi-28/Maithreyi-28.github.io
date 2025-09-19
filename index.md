@@ -7,23 +7,23 @@ title: "Home"
 📧 [maithreyikannan23@gmail.com](mailto:maithreyikannan23@gmail.com) | 📱 (+91) 6366206111  
 
 3rd Year Undergraduate – **Law with Business Administration**  
-Sastra Deemed University | CGPA: 7.67/10.0 (expected graduation 2028)
+Sastra Deemed University | CGPA: 7.88/10.0 (expected graduation 2028)
 
 ---
 
-## 🎓 Education
+## Education
 - **B.B.A LL.B (Hons.)**, Sastra Deemed University (2028 exp.) – CGPA: 7.88/10  
 - **Class XII, CBSE**, Sri Vageesha Vidhyashram (2020) – 82.6%  
 - **Class X, CBSE**, Sri Vageesha Vidhyashram (2018) – 85.4%  
 
 ---
 
-## 🏆 Scholastic Achievements
+## Scholastic Achievements
 - Secured **AIR 2043** in CLAT (2023) among 56,000 aspirants  
 
 ---
 
-## 💼 Internships
+## Internships
 **Legal Intern | Office of Advocate K.S. Vamsidhar** (Jan 2024)  
 - Reviewed case files and judgments, assisted in drafting, and researched legal provisions.  
 - Gained knowledge of **E-courts mechanism**, handled paperwork, and assisted clients.  
@@ -49,13 +49,13 @@ Sastra Deemed University | CGPA: 7.67/10.0 (expected graduation 2028)
 
 ---
 
-## 📚 Relevant Courses & Skills
+## Relevant Courses & Skills
 - Company Secretary (Foundation Cleared)  
 - Skills: Company Laws, Business, Economics  
 
 ---
 
-## 📑 Publications
+## Publications
 - *Comparison of New Criminal Laws (Armed Forces)* – Academic Enclave (ISBN: 9789348642523)  
 - *International Criminal Law: War Crimes and Tribunals*  
 - *Categories of Criminal Offences*  
@@ -64,7 +64,7 @@ Sastra Deemed University | CGPA: 7.67/10.0 (expected graduation 2028)
 
 ---
 
-## 🌟 Extracurricular Activities
+## Extracurricular Activities
 - Organized and conducted **Blood Donation Camps** (70+ successful donors).  
 - 1st place in **Client Counselling** competition.  
 - Volunteered in **NSS Rural Outreach**, teaching hygiene and safety.  
